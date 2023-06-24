@@ -1,0 +1,2 @@
+# yeahimsammi.xyz
+my website
